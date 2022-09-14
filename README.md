@@ -1,4 +1,4 @@
-![mycode](https://user-images.githubusercontent.com/83990276/190189911-df775eed-1219-4a5d-8d2e-57f04103d1d9.gif)
+![mycode](https://user-images.githubusercontent.com/83990276/190192957-f71d2f30-a40e-4070-8c40-732706b89469.gif)
 
 - 👋 Hi, I’m @Geovanny-Pantoja
 - 👀 I’m interested in improving my skills and have a continuing learning experience
